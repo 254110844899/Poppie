@@ -1,2 +1,0 @@
-# Poppie
-Profitable business
